@@ -2,4 +2,6 @@
 
 Hi!
 
-katystuff321 here, I like code.
+katystuff321 is here😃!
+
+Got to go! Bye👋🏻
